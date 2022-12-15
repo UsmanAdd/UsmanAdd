@@ -4,7 +4,6 @@
 💞️ I want to become a specialist capable of solving any problem <br>
 📫 How to contact me: <br>
 **Telegram:** *https://t.me/Its3XinCubePlusConst <br>*
-**Email:** *elista08.lol@yandex.ru <br>*
 
 ![image](https://user-images.githubusercontent.com/34717949/207824006-321ee625-f8cd-4b9a-b8f0-142bed87d226.png) 
 
